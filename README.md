@@ -8,7 +8,7 @@
   disolved chemicals,<br>
   here we solve it all..<br>
   <hr>
-[https://lastofthekillerbirds.bandcamp.com/](Last of the Killer Birds)<br>
+[https://lastofthekillerbirds.bandcamp.com/](Last_of_the_Killer_Birds)<br>
 [https://soundcloud.com/n0dae](n0dæ)<br>
 [https://soundcloud.com/n0dalt145](alt145)<br>
   <hr>
