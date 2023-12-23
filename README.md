@@ -5,7 +5,7 @@
   where the bird beaks crawl,<br>
   you will find us all,<br>
   melted,<br>
-  disolved chemicals,<br>
+  dissolved chemicals,<br>
   here we solve it all..<br>
   <hr>
 https://lastofthekillerbirds.bandcamp.com/<br>
